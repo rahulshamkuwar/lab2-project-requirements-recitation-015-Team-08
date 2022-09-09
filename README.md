@@ -4,6 +4,7 @@ Random change
 Rahul Shamkuwar
 ## Names
 * Rahul Shamkuwar - rahulshamkuwar
+* Freddy Linn - freddylinn asdlfkjasdlkfjadsl
 * Freddy Linn - freddylinn 21392103
 * Jensen Lav - Jensenlav
 * Aria Barbour - ARIAMBARBOUR
