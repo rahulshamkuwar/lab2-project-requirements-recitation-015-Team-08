@@ -2,8 +2,8 @@
 
 Random change
 ## Names
-* Rahul Shamkuwar - rahulhiiiiiiishamkuwar
+* Rahul Shamkuwar - rahulshamkuwar
 * Freddy Linn - freddylinn
 * Jensen Lav - Jensenlav
-* Aria Barbour - ARIAMBARBOUR different change 
+* Aria Barbour - ARIAMBARBOUR ****************
 * Sanjana Kumpati - sanjanakumpati
